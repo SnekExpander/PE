@@ -48,7 +48,7 @@ Also, taping with narrow 3M medical pore tape was to finicky and bothersome for 
 
 If I can't start with lengthwork in 5 minutes, I won't start my routine at all, so this is essential for me.
 
-I also tried different compression devices, but I don't feel the same uniform stretch and compared to vac hanging. They also need regular controlling, set pausing and re-oxygenation compared to vacuum hanging/extending.
+I also tried different compression devices, but I don't feel the same uniform stretch and compared to vac hanging, they also need regular controlling, set pausing and re-oxygenation.
 
 I just want to set and forget, so I can attach my member to my under desk pulley and continue working at my PC. This is the best way for me to keep a regular routine. Not trying to make compression devices look bad, but it's just not for me.
 
