@@ -1,4 +1,5 @@
-# Preface
+# How to vacuum extend/hang comfortably without edema and blisters - A special sleeve and alternative quick-taping technique, especially for uncut guys
+## Preface
 
 Nothing in this guide is a novelty and I'm sure some use the same or similar methods. I just wanted to make a guide how I do it "my way" after struggling to find something that works with a sensitive glans and foreskin.
 
@@ -58,82 +59,82 @@ I just switched back to Mefix tape and it's much more comfortable to handle and 
 
 &nbsp;
 
-![S1.jpg](../_resources/S1.jpg)  
+![S1.jpg](attachments/S1.jpg)  
 Different sizes are available.
 
-![S2.jpg](../_resources/S2.jpg)  
+![S2.jpg](attachments/S2.jpg)  
 In this guide I use the 228 x 26 mm "XXL" or "2XL" sleeve, depending which seller you're using. I like to buy the longest sleeves, because I'm going to cut them into my preferred size anyways and you'll get more sleeve for you money.
 
-![S3.jpg](../_resources/S3.jpg)  
+![S3.jpg](attachments/S3.jpg)  
 You want something like this! They have a completely cylindrical shape and are semi-transparent.
 
-![05dc79973f97c5dd2996b9845a1e64cb.png](../_resources/05dc79973f97c5dd2996b9845a1e64cb.png)
+![05dc79973f97c5dd2996b9845a1e64cb.png](attachments/05dc79973f97c5dd2996b9845a1e64cb.png)
 Don't buy these! Those are the crappy ones. You can identify them because of the wider pre-molded vacuum cup shape at the top. Colors are usually white and blue. They usually come in sizes "S", "M", and "L".
 
-![S4.jpg](../_resources/S4.jpg)  
+![S4.jpg](attachments/S4.jpg)  
 You can also identify the good sleeves by the packaging. They come with a foam protector on the inside of the sleeve. Looks like a hotdog inside a bun :)
 
-![S5.jpg](../_resources/S5.jpg)  
+![S5.jpg](attachments/S5.jpg)  
 Important: The sleeve should have some good amount of thickness to it, that's why I'm preferring these. They are also super soft and extremely stretchy.
 
 # Guide starts here
 
 **Step 1 - Outer sleeve preparation:**  
-![4faaa2544c71e82a450078a8ae784005.png](../_resources/4faaa2544c71e82a450078a8ae784005.png)  
+![4faaa2544c71e82a450078a8ae784005.png](attachments/4faaa2544c71e82a450078a8ae784005.png)  
 I cut my sleeves into the sizes like shown in the following pictures. Your size preference and need might differ. Determine if you need a 20 mm or 26 mm diameter sleeve for your girth. My recommendation: Order both and decide by experimenting what's more comfortable and gives you the best grip for you setup.
 
 I like roughly 90 mm / 3.54" length for my outer cup sleeve. This one already has a specific pre-stretched form as I've been using it for a few months.
 
 A new one should look like this:  
-![2.jpg](../_resources/2.jpg)
+![2.jpg](attachments/2.jpg)
 
 **Step 2 - Cup preparation:**  
-![3.jpg](../_resources/3.jpg)  
+![3.jpg](attachments/3.jpg)  
 1\. Put the outer sleeve onto the cup.
 
-![4.jpg](../_resources/4.jpg)  
+![4.jpg](attachments/4.jpg)  
 2\. Roll your sleeve upwards as tightly as possible.
 
-![5.jpg](../_resources/5.jpg)
-![acd97104ce589e8b232a1a5fc71cbd0a.png](../_resources/acd97104ce589e8b232a1a5fc71cbd0a.png)
+![5.jpg](attachments/5.jpg)
+![acd97104ce589e8b232a1a5fc71cbd0a.png](attachments/acd97104ce589e8b232a1a5fc71cbd0a.png)
 3\. Roll your sleeve onto the cup, so it looks like a donut. I found the best way to do that is by pressing and fixating the tip of the cup towards your chest while you use both hands to flip the sleeve onto the cup.
 
-![7.jpg](../_resources/7.jpg)
+![7.jpg](attachments/7.jpg)
 
 **Step 3 - Inner sleeve preparation:**  
-![8.jpg](../_resources/8.jpg)  
+![8.jpg](attachments/8.jpg)  
 Cut a new piece off your sleeve. Here I'm using around 60 mm / 2.36". You can experiment by cutting a groove to have a better fit for the dorsal side of your glans. You could also cut the the opposite side pointy shaped, so it fits over your frenulum. If you do that, start with the frenulum side and cut the dorsal side last. This is a lot of trial and error to achieve your perfect fit, but the sleeve is very stretchy and forgiving when you're wearing it.
 
-![9.jpg](../_resources/9.jpg)  
+![9.jpg](attachments/9.jpg)  
 In this example I just use a dorsal side cut-out. You could even skip the cut-outs, but you might suffer some comfort and squeezed glans ridges that turn blue after a while when hanging/extending, because the sleeve might squish your glans slightly.
 
-![10.jpg](../_resources/10.jpg)  
-![11.jpg](../_resources/11.jpg)  
-![12.jpg](../_resources/12.jpg)  
-![13.jpg](../_resources/13.jpg)  
+![10.jpg](attachments/10.jpg)  
+![11.jpg](attachments/11.jpg)  
+![12.jpg](attachments/12.jpg)  
+![13.jpg](attachments/13.jpg)  
 Sharp scissors are recommended.
 
 **Step 4 - Toe shield preparation (Optional):**  
-![14.jpg](../_resources/14.jpg)  
+![14.jpg](attachments/14.jpg)  
 Prepare a toe shield. I pinch a small hole in the top of the toe shield so it doesn't shrivel itself off your glans when using vacuum later in the process. You can skip using a toe shield, but I like the compression effect, so I can get in the cup more easily and it also gives you additional protection and a comfort cushion. If your cup is slightly too big, you can also always stack a few to minimize empty space.
 
 **Step 5 - Tape preparation:**
-![15.jpg](../_resources/15.jpg)  
+![15.jpg](attachments/15.jpg)  
 1\. Cut your tape into your specific length. For me 15 cm / 5.9" per piece is optimal. I like using 4 pieces that get overlapped - so basically it's double taped around the side and quadruple taped at the top of the glans. You'll see how in the taping section.
 
-![da59d25f5f30fc15183dfa127ac2ce3a.png](../_resources/da59d25f5f30fc15183dfa127ac2ce3a.png)  
+![da59d25f5f30fc15183dfa127ac2ce3a.png](attachments/da59d25f5f30fc15183dfa127ac2ce3a.png)  
 2\. Gently stretch the tape apart and the back foil will split from the actual fleece medical tape.
 
-![17.jpg](../_resources/17.jpg)  
+![17.jpg](attachments/17.jpg)  
 3\. You can now tear the tape and foil apart. Backfoil goes into the trash, tape can be glued to the edge of your table until you have all 4 pieces ready for the next step.
 
 **Step 6 - Member preparation (Foreskin and cockrings)**:
-![ac3031eaf3851b7275ed7eb5ab3f258e.png](../_resources/ac3031eaf3851b7275ed7eb5ab3f258e.png)  
+![ac3031eaf3851b7275ed7eb5ab3f258e.png](attachments/ac3031eaf3851b7275ed7eb5ab3f258e.png)  
 Just for reference, the <span style="color: rgb(224, 62, 45);">red "D"</span> in the upcoming pictures is the dorsal (upper) side of your member, so you don't lose orientation.
 
 ==The yellow tape on this banana is to represent the glans and should NOT be confused with the actual taping process!==
 
-![4ba778c92616d16e8e646304dc215b52.png](../_resources/4ba778c92616d16e8e646304dc215b52.png)  
+![4ba778c92616d16e8e646304dc215b52.png](attachments/4ba778c92616d16e8e646304dc215b52.png)  
 ==It is important that your glans is fully erect and filled with blood when taping. Your foreskin should be pulled down completely and held in place by cockrings (marked blue) at the base of your member.==
 
 Alternative to cockrings: I recommend cutting off two or three 1.5 - 3 cm / 0.6 - 1.2" long sleeves and stacking them at the base of your member for maximum rigidness.
@@ -141,7 +142,7 @@ Alternative to cockrings: I recommend cutting off two or three 1.5 - 3 cm / 0.6 
 ==I want to emphasize again how important a 100% erect glans is and that your foreskin should be pulled down completely when taping, else you might experience uncomfortable pinching and edema while hanging/extending! Don't rush through this step and learn how to do it properly for your own sake.==
 
 **Step 7 - Taping:**
-![b41eefccc0fd4de8ca64a596367f0879.png](../_resources/b41eefccc0fd4de8ca64a596367f0879.png)  
+![b41eefccc0fd4de8ca64a596367f0879.png](attachments/b41eefccc0fd4de8ca64a596367f0879.png)  
 ==Hint: Throughout all sub-steps in the "Taping" section, always pull down your foreskin and hold it pulled down when you place your tape on the shaft and coronal ridge on either side. Your cockrings at the base of the shaft will do the most work, but you'll need to assist with one of your hands.==
 
 ==Cut members: Depending on how much skin or scar tissue is left over, I would recommend on pulling the skin down anyways, but judge it yourself.==
@@ -156,72 +157,72 @@ Alternative to cockrings: I recommend cutting off two or three 1.5 - 3 cm / 0.6 
 
 It's important that you put the tape inside the coronal ridge and prevent air pockets. We need uniform contact between the tape and skin. Make sure you do this all around the glans when taping. Mefix fleece tape is stretchy, so it's pretty easy to achieve.
 
-![T1.jpg](../_resources/T1.jpg)
-![T2.jpg](../_resources/T2.jpg)![548dcc22297feac15e88b6ce718fd1b6.png](../_resources/548dcc22297feac15e88b6ce718fd1b6.png)  
+![T1.jpg](attachments/T1.jpg)
+![T2.jpg](attachments/T2.jpg)![548dcc22297feac15e88b6ce718fd1b6.png](attachments/548dcc22297feac15e88b6ce718fd1b6.png)  
 From the side it should now look like this.
 
-![490c6e0ce68c3dbeac753c79e330373b.png](../_resources/490c6e0ce68c3dbeac753c79e330373b.png)  
+![490c6e0ce68c3dbeac753c79e330373b.png](attachments/490c6e0ce68c3dbeac753c79e330373b.png)  
 5\. Fold the tape downwards on both sides of your glans.
 
-![ac172c08b9e57e39a6c2a4736705061b.png](../_resources/ac172c08b9e57e39a6c2a4736705061b.png)![dea863030d45a753104b9459f8ff9d23.png](../_resources/dea863030d45a753104b9459f8ff9d23.png)![c0a20deb47b484ff277c3ebb32ee5b0e.png](../_resources/c0a20deb47b484ff277c3ebb32ee5b0e.png)![ec9f06fb4997674d8fe14f5d03288f7e.png](../_resources/ec9f06fb4997674d8fe14f5d03288f7e.png)![8261445241edf997a94de3fd57418160.png](../_resources/8261445241edf997a94de3fd57418160.png)  
+![ac172c08b9e57e39a6c2a4736705061b.png](attachments/ac172c08b9e57e39a6c2a4736705061b.png)![dea863030d45a753104b9459f8ff9d23.png](attachments/dea863030d45a753104b9459f8ff9d23.png)![c0a20deb47b484ff277c3ebb32ee5b0e.png](attachments/c0a20deb47b484ff277c3ebb32ee5b0e.png)![ec9f06fb4997674d8fe14f5d03288f7e.png](attachments/ec9f06fb4997674d8fe14f5d03288f7e.png)![8261445241edf997a94de3fd57418160.png](attachments/8261445241edf997a94de3fd57418160.png)  
 6\. Fold the 4 flaps inwards to the sides of the glans.
 
-![f641aa1022e83becabd5c2be120cfcd5.png](../_resources/f641aa1022e83becabd5c2be120cfcd5.png)![b899de8895c39bc8494794d4feb2749b.png](../_resources/b899de8895c39bc8494794d4feb2749b.png)  
+![f641aa1022e83becabd5c2be120cfcd5.png](attachments/f641aa1022e83becabd5c2be120cfcd5.png)![b899de8895c39bc8494794d4feb2749b.png](attachments/b899de8895c39bc8494794d4feb2749b.png)  
 ==Before continuing with the next step, squish your glans and shaft gently from all sides and top to make sure that the tape has 100% contact with your skin.==
 
-![970e56216f2ddd25957af16137e276ba.png](../_resources/970e56216f2ddd25957af16137e276ba.png)
+![970e56216f2ddd25957af16137e276ba.png](attachments/970e56216f2ddd25957af16137e276ba.png)
 7\. Place the next piece of tape onto the tip of your glans. Try to be as much in the center point as possible. That way, we achieve uniform taping length on both sides.
 
-![0f18396d9275e1cf3feffb2bc59680ca.png](../_resources/0f18396d9275e1cf3feffb2bc59680ca.png)  
+![0f18396d9275e1cf3feffb2bc59680ca.png](attachments/0f18396d9275e1cf3feffb2bc59680ca.png)  
 8\. Fold down the tape. Again, prevent "air pockets" around the coronal ridge and correct them with your fingers/thumbs.
 
-![3b9ee778c2cbd7643f8da5ca1cd1888b.png](../_resources/3b9ee778c2cbd7643f8da5ca1cd1888b.png)  
+![3b9ee778c2cbd7643f8da5ca1cd1888b.png](attachments/3b9ee778c2cbd7643f8da5ca1cd1888b.png)  
 9\. Fold the tape downwards on the dorsal and opposite side of the glans.
 
-![2192a99754bc87ced3e5b903080200f7.png](../_resources/2192a99754bc87ced3e5b903080200f7.png)![b2c0a564b25d3d48fcaecfde1a04dd4c.png](../_resources/b2c0a564b25d3d48fcaecfde1a04dd4c.png)![79c07c6224380b278552effdd230b2ad.png](../_resources/79c07c6224380b278552effdd230b2ad.png)![745665aebbf105d11ed2b594a415398a.png](../_resources/745665aebbf105d11ed2b594a415398a.png)  
+![2192a99754bc87ced3e5b903080200f7.png](attachments/2192a99754bc87ced3e5b903080200f7.png)![b2c0a564b25d3d48fcaecfde1a04dd4c.png](attachments/b2c0a564b25d3d48fcaecfde1a04dd4c.png)![79c07c6224380b278552effdd230b2ad.png](attachments/79c07c6224380b278552effdd230b2ad.png)![745665aebbf105d11ed2b594a415398a.png](attachments/745665aebbf105d11ed2b594a415398a.png)  
 10\. Fold the 4 flaps inwards to the dorsal and opposite side.
 
 ==Again, before continuing with the next step, squish your glans and shaft gently from all sides and top to make sure that the tape has 100% contact with your skin and the other tape layer.==
 
-![721ec16924ec2c9043b6345dc6c4c3b2.png](../_resources/721ec16924ec2c9043b6345dc6c4c3b2.png)  
+![721ec16924ec2c9043b6345dc6c4c3b2.png](attachments/721ec16924ec2c9043b6345dc6c4c3b2.png)  
 11\. Use the third piece of tape and repeat steps 1 - 6.
 
-![f64c2bc0c3f8692f1e58e62da77e1518.png](../_resources/f64c2bc0c3f8692f1e58e62da77e1518.png)
-![89386f3d8061e0f53be33e3dd234dcab.png](../_resources/89386f3d8061e0f53be33e3dd234dcab.png)  
+![f64c2bc0c3f8692f1e58e62da77e1518.png](attachments/f64c2bc0c3f8692f1e58e62da77e1518.png)
+![89386f3d8061e0f53be33e3dd234dcab.png](attachments/89386f3d8061e0f53be33e3dd234dcab.png)  
 12\. Use the fourth piece of tape and repeat steps 7 - 10.
 
-![4c30cd712aa48cf70d51cbe01cb82934.png](../_resources/4c30cd712aa48cf70d51cbe01cb82934.png)![0916b59ba248ff3d121cfb2d6de1790e.png](../_resources/0916b59ba248ff3d121cfb2d6de1790e.png)
+![4c30cd712aa48cf70d51cbe01cb82934.png](attachments/4c30cd712aa48cf70d51cbe01cb82934.png)![0916b59ba248ff3d121cfb2d6de1790e.png](attachments/0916b59ba248ff3d121cfb2d6de1790e.png)
 
-![1d61428ab588ec70c086b85680b8e94d.png](../_resources/1d61428ab588ec70c086b85680b8e94d.png)  
+![1d61428ab588ec70c086b85680b8e94d.png](attachments/1d61428ab588ec70c086b85680b8e94d.png)  
 ==Once more, squish your glans and shaft gently from all sides and top to make sure that the tape has 100% contact with your skin and the other layers of tape.==
 
-**Step 8 - Toe shield (Optional but highly recommended):**![7e9a7b52a70f03d743e07d7ce3dc7e70.png](../_resources/7e9a7b52a70f03d743e07d7ce3dc7e70.png)  
+**Step 8 - Toe shield (Optional but highly recommended):**![7e9a7b52a70f03d743e07d7ce3dc7e70.png](attachments/7e9a7b52a70f03d743e07d7ce3dc7e70.png)  
 1. Place the toe shield over your glans.
 
-![acd01932619458dec89021871a284cdc.png](../_resources/acd01932619458dec89021871a284cdc.png)  
+![acd01932619458dec89021871a284cdc.png](attachments/acd01932619458dec89021871a284cdc.png)  
 2\. Roll your toe shield slightly above your coronal ridge (blue).
 
-![dc31071ea6d471b2b9ff701050cb13c0.png](../_resources/dc31071ea6d471b2b9ff701050cb13c0.png)  
+![dc31071ea6d471b2b9ff701050cb13c0.png](attachments/dc31071ea6d471b2b9ff701050cb13c0.png)  
 3\. Pull down your foreskin to the base of your member and unroll your toe shield.
 
 **Step 9 - Inner sleeve**
-![424accae368224c97d84cd904849711d.png](../_resources/424accae368224c97d84cd904849711d.png)  
+![424accae368224c97d84cd904849711d.png](attachments/424accae368224c97d84cd904849711d.png)  
 1\. Place the inner sleeve under the coronal ridge (blue) and overlap it with the toe shield. Correct your placement for your cut-outs by lifting and stretching it with your fingers where you want it to be.
 
-![5a289d32b1dfbaabe96f60fc46f3a2bb.png](../_resources/5a289d32b1dfbaabe96f60fc46f3a2bb.png)  
+![5a289d32b1dfbaabe96f60fc46f3a2bb.png](attachments/5a289d32b1dfbaabe96f60fc46f3a2bb.png)  
 2\. Roll your sleeve upwards and into the coronal ridge.
 
-![d74a64b13c0b3b7322656498511ce851.png](../_resources/d74a64b13c0b3b7322656498511ce851.png)  
+![d74a64b13c0b3b7322656498511ce851.png](attachments/d74a64b13c0b3b7322656498511ce851.png)  
 3\. Pull down your foreskin to the base of your member and unroll the sleeve.
 
 **Step 10 - Outer sleeve and vacuum cup**
-![9616397bd63e47936b0e3720f3181b54.png](../_resources/9616397bd63e47936b0e3720f3181b54.png)  
+![9616397bd63e47936b0e3720f3181b54.png](attachments/9616397bd63e47936b0e3720f3181b54.png)  
 1\. Insert your glans into the vacuum cup. You may need to remove your cockrings and wait to get semi-rigid to fit into the cup. Make sure you get your glans completely into the cup. Preserve at least 3-4 mm of space infront of the valve, so you're not blocking it.
 
-![0c8272fa7324143acead9233f3176ca9.png](../_resources/0c8272fa7324143acead9233f3176ca9.png)  
+![0c8272fa7324143acead9233f3176ca9.png](attachments/0c8272fa7324143acead9233f3176ca9.png)  
 2\. Unroll your outer sleeve.
 
-![5a11cfec7f71b5bb05fa86732f492f5d.png](../_resources/5a11cfec7f71b5bb05fa86732f492f5d.png)  
+![5a11cfec7f71b5bb05fa86732f492f5d.png](attachments/5a11cfec7f71b5bb05fa86732f492f5d.png)  
 3\. Fold the outer sleeve onto the inner sleeve for a better seal and to prevent pinching on your foreskin when hanging/extending.
 
 4\. Use a pump to create a vacuum inside the cup. Personally I don't like to use a lot of negative pressure, just a slight vacuum of negative 3 - 5 inHg. For reference: Your glans should barely change its position when you are extending, but don't overpump your glans if you don't want edema. There may be some visible air pockets inside the cup, but that's fine. Your multiple layers of tape and the toe shield should prevent blisters of any form. You can always stack multiple toe shields to decrease glans edema should your cup be too big.
