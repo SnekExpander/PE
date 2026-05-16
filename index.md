@@ -8,7 +8,7 @@
   * [Material I use in this guide:](#material-i-use-in-this-guide-)
   * [Guide starts here](#guide-starts-here)
     + [Step 1 - Outer sleeve preparation:](#step-1---outer-sleeve-preparation-)
-    + [Step 2 - Cup preparation:](#step-2---cup-preparation-)
+    + [Step 2 - Cup preparation:](#step-2---cup-preparation)
     + [Step 3 - Inner sleeve preparation:](#step-3---inner-sleeve-preparation-)
     + [Step 4 - Toe shield preparation (Optional):](#step-4---toe-shield-preparation--optional--)
     + [Step 5 - Tape preparation:](#step-5---tape-preparation-)
