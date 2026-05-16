@@ -5,7 +5,7 @@
   * [Why this guide? Aren't there already a dozen video tutorials from the OGs? Short answer: Yes and no.](#why-this-guide-arent-there-already-a-dozen-video-tutorials-from-the-ogs-short-answer-yes-and-no)
   * [Existing tailored vacuum sleeve solutions](#existing-tailored-vacuum-sleeve-solutions)
   * [Blister prevention](#blister-prevention)
-  * [Material I use in this guide:](#material-i-use-in-this-guide-)
+  * [Material I use in this guide:](#material-i-use-in-this-guide)
   * [Guide starts here](#guide-starts-here)
     + [Step 1 - Outer sleeve preparation:](#step-1---outer-sleeve-preparation)
     + [Step 2 - Cup preparation:](#step-2---cup-preparation)
