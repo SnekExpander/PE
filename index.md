@@ -36,7 +36,7 @@ I just want to set and forget, so I can attach my member to my under desk pulley
 
 I bought the 43 mm Middle Reliever from [u/6-12_Curveball](https://www.reddit.com/u/6-12_Curveball), but I was struggling to get it over my member. At the time, there wasn't the "Super Soft" but just the "Durable" variant available, which are too hard to just stretch over my member and it was a huge struggle to fit comfortably. Maybe it's only an issue with above than average girth. I only managed to use it once properly.
 
-Alternatively, I hated that I'd needed to lube up, get in and clean the lube up while inside the sleeve. Taped up it's even more bothersome, because it might get your tape wet and it starts dissolving the glue.
+Alternatively, I hated that I'd needed to lube up, get in and clean the lube up while inside the sleeve. It's even more bothersome when taped up, because it might get your tape wet and it starts dissolving the glue.
 
 Maybe the new "Super Soft" (stretchy) variant would be better for me, but I had no luck as they we're out of stock almost immediately within the next order windows. I love his products and would always recommend them if possible. But you have to be quick. As I'm from the EU, I don't just want to order one product, but a few different ones, so it's worth the shipping costs. Often I wasn't fast enough to fill my shopping cart with different items and get my order through in time as something sold out.
 
