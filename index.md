@@ -1,5 +1,23 @@
 # How to vacuum extend/hang comfortably without edema and blisters - A special sleeve and alternative quick-taping technique, especially for uncut guys
 
+## Table of contents:
+  * [Intro](#intro)
+  * [Why this guide? Aren't there already a dozen video tutorials from the OGs? Short answer: Yes and no.](#why-this-guide--aren-t-there-already-a-dozen-video-tutorials-from-the-ogs--short-answer--yes-and-no)
+  * [Existing tailored vacuum sleeve solutions](#existing-tailored-vacuum-sleeve-solutions)
+  * [Blister prevention](#blister-prevention)
+  * [Material I use in this guide:](#material-i-use-in-this-guide-)
+  * [Guide starts here](#guide-starts-here)
+    + [Step 1 - Outer sleeve preparation:](#step-1---outer-sleeve-preparation-)
+    + [Step 2 - Cup preparation:](#step-2---cup-preparation-)
+    + [Step 3 - Inner sleeve preparation:](#step-3---inner-sleeve-preparation-)
+    + [Step 4 - Toe shield preparation (Optional):](#step-4---toe-shield-preparation--optional--)
+    + [Step 5 - Tape preparation:](#step-5---tape-preparation-)
+    + [Step 6 - Member preparation (Foreskin and cockrings):](#step-6---member-preparation--foreskin-and-cockrings--)
+    + [Step 7 - Taping:](#step-7---taping-)
+    + [Step 8 - Toe shield (Optional but highly recommended):![7e9a7b52a70f03d743e07d7ce3dc7e70.png](attachments/7e9a7b52a70f03d743e07d7ce3dc7e70.png)](#step-8---toe-shield--optional-but-highly-recommended----7e9a7b52a70f03d743e07d7ce3dc7e70png--attachments-7e9a7b52a70f03d743e07d7ce3dc7e70png-)
+    + [Step 9 - Inner sleeve](#step-9---inner-sleeve)
+    + [Step 10 - Outer sleeve and vacuum cup](#step-10---outer-sleeve-and-vacuum-cup)
+    + [Outro:](#outro-)
 
 ## Intro
 
@@ -82,7 +100,7 @@ Important: The sleeve should have some good amount of thickness to it, that's wh
 
 ## Guide starts here
 
-**Step 1 - Outer sleeve preparation:**  
+### Step 1 - Outer sleeve preparation:  
 ![4faaa2544c71e82a450078a8ae784005.png](attachments/4faaa2544c71e82a450078a8ae784005.png)  
 I cut my sleeves into the sizes like shown in the following pictures. Your size preference and need might differ. Determine if you need a 20 mm or 26 mm diameter sleeve for your girth. My recommendation: Order both and decide by experimenting what's more comfortable and gives you the best grip for you setup.
 
@@ -91,7 +109,7 @@ I like roughly 90 mm / 3.54" length for my outer cup sleeve. This one already ha
 A new one should look like this:  
 ![2.jpg](attachments/2.jpg)
 
-**Step 2 - Cup preparation:**  
+### Step 2 - Cup preparation:  
 ![3.jpg](attachments/3.jpg)  
 1\. Put the outer sleeve onto the cup.
 
@@ -104,7 +122,7 @@ A new one should look like this:
 
 ![7.jpg](attachments/7.jpg)
 
-**Step 3 - Inner sleeve preparation:**  
+### Step 3 - Inner sleeve preparation:  
 ![8.jpg](attachments/8.jpg)  
 Cut a new piece off your sleeve. Here I'm using around 60 mm / 2.36". You can experiment by cutting a groove to have a better fit for the dorsal side of your glans. You could also cut the the opposite side pointy shaped, so it fits over your frenulum. If you do that, start with the frenulum side and cut the dorsal side last. This is a lot of trial and error to achieve your perfect fit, but the sleeve is very stretchy and forgiving when you're wearing it.
 
@@ -117,11 +135,11 @@ In this example I just use a dorsal side cut-out. You could even skip the cut-ou
 ![13.jpg](attachments/13.jpg)  
 Sharp scissors are recommended.
 
-**Step 4 - Toe shield preparation (Optional):**  
+### Step 4 - Toe shield preparation (Optional):  
 ![14.jpg](attachments/14.jpg)  
 Prepare a toe shield. I pinch a small hole in the top of the toe shield so it doesn't shrivel itself off the glans when using vacuum later in the process. You can skip using a toe shield, but I like the compression effect, so I can get in the cup more easily and it also gives you additional protection and a comfort cushion. If your cup is slightly too big, you can also always stack a few to minimize empty space.
 
-**Step 5 - Tape preparation:**
+### Step 5 - Tape preparation:
 ![15.jpg](attachments/15.jpg)  
 1\. Cut your tape into your specific length. For me 15 cm / 5.9" per piece is optimal. I like using 4 pieces that get overlapped - so basically it's double taped around the side and quadruple taped at the top of the glans. You'll see how in the taping section.
 
@@ -131,7 +149,7 @@ Prepare a toe shield. I pinch a small hole in the top of the toe shield so it do
 ![17.jpg](attachments/17.jpg)  
 3\. You can now tear the tape and foil apart. Backfoil goes into the trash, tape can be glued to the edge of your table until you have all 4 pieces ready for the next step.
 
-**Step 6 - Member preparation (Foreskin and cockrings)**:
+### Step 6 - Member preparation (Foreskin and cockrings):
 ![ac3031eaf3851b7275ed7eb5ab3f258e.png](attachments/ac3031eaf3851b7275ed7eb5ab3f258e.png)  
 Just for reference, the **_red "D"_** in the upcoming pictures is the dorsal (upper) side of your member, so you don't lose orientation.
 
@@ -144,7 +162,7 @@ Alternative to cockrings: I recommend cutting off two or three 1.5 - 3 cm / 0.6 
 
 **_I want to emphasize again how important a 100% erect glans is and that your foreskin should be pulled down completely when taping, else you might experience uncomfortable pinching and edema while hanging/extending! Don't rush through this step and learn how to do it properly for your own sake._**
 
-**Step 7 - Taping:**
+### Step 7 - Taping:
 ![b41eefccc0fd4de8ca64a596367f0879.png](attachments/b41eefccc0fd4de8ca64a596367f0879.png)  
 **_Hint: Throughout all sub-steps in the "Taping" section, always pull down your foreskin and hold it pulled down when you place your tape on the shaft and coronal ridge on either side. Your cockrings at the base of the shaft will do the most work, but you'll need to assist with one of your hands._**
 
@@ -199,7 +217,7 @@ From the side it should now look like this.
 ![1d61428ab588ec70c086b85680b8e94d.png](attachments/1d61428ab588ec70c086b85680b8e94d.png)  
 **_Once more, squish your glans and shaft gently from all sides and top to make sure that the tape has 100% contact with your skin and the other layers of tape._**
 
-**Step 8 - Toe shield (Optional but highly recommended):**![7e9a7b52a70f03d743e07d7ce3dc7e70.png](attachments/7e9a7b52a70f03d743e07d7ce3dc7e70.png)  
+### Step 8 - Toe shield (Optional but highly recommended):![7e9a7b52a70f03d743e07d7ce3dc7e70.png](attachments/7e9a7b52a70f03d743e07d7ce3dc7e70.png)  
 1. Place the toe shield over your glans.
 
 ![acd01932619458dec89021871a284cdc.png](attachments/acd01932619458dec89021871a284cdc.png)  
@@ -208,7 +226,7 @@ From the side it should now look like this.
 ![dc31071ea6d471b2b9ff701050cb13c0.png](attachments/dc31071ea6d471b2b9ff701050cb13c0.png)  
 3\. Pull down your foreskin to the base of your member and unroll your toe shield.
 
-**Step 9 - Inner sleeve**
+### Step 9 - Inner sleeve
 ![424accae368224c97d84cd904849711d.png](attachments/424accae368224c97d84cd904849711d.png)  
 1\. Place the inner sleeve under the coronal ridge (blue) and overlap it with the toe shield. Correct your placement for your cut-outs by lifting and stretching it with your fingers where you want it to be.
 
@@ -218,7 +236,7 @@ From the side it should now look like this.
 ![d74a64b13c0b3b7322656498511ce851.png](attachments/d74a64b13c0b3b7322656498511ce851.png)  
 3\. Pull down your foreskin to the base of your member and unroll the sleeve.
 
-**Step 10 - Outer sleeve and vacuum cup**
+### Step 10 - Outer sleeve and vacuum cup
 ![9616397bd63e47936b0e3720f3181b54.png](attachments/9616397bd63e47936b0e3720f3181b54.png)  
 1\. Insert your glans into the vacuum cup. You may need to remove your cockrings and wait to get semi-rigid to fit into the cup. Make sure you get your glans completely into the cup. Preserve at least 3-4 mm of space infront of the valve, so you're not blocking it.
 
@@ -232,7 +250,7 @@ From the side it should now look like this.
 
 5\. Close/secure the cup valve. You are now ready to hang/extend!
 
-**Outro:**  
+### Outro:  
 Like stated in the intro of this guide: I'm very prone to blisters and edema. With this setup, I can hang 8 lbs easily for 1.5 h. I haven't tried more weight but it shouldn't be really an issue. You also might get away with only 2 pieces of tape, but I don't want to risk any downtime in my daily routine because I caught some blisters by trying to save a few seconds taping up.
 
 Placing the first two pieces of tape properly is the hardest part, the third and fourth piece aren't difficult, because you just put them over the existing tape without the need of paying attention to the foreskin and placement that much. I think it definitely outweighs the risk for blisters.
