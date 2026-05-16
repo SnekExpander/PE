@@ -73,8 +73,8 @@ I just switched back to Mefix tape and it's much more comfortable to handle and 
 ## Material I use in this guide:
 
 - Mefix tape 5 cm x 10 m. Either buy this or the 2.5 cm x 10 m (0.98" \* 32.8 ft) variant if you have a much smaller girth. I bought it from a European medical shop. 3-4€ per 10 m roll.
-- Totalman vacuum cup size 4. Pick the smallest possible for your erect glans. It should be a snug fit, but you should still have some space left for the tape, sleeves and toeshield.
-- Toeshields from Amazon or AliExpress.
+- Totalman vacuum cup size 4. Pick the smallest possible for your erect glans. It should be a snug fit, but you should still have some space left for the tape, sleeves and toe shield.
+- Toe shields from Amazon or AliExpress.
 - Chinese sleeves from AliExpress. Not the poorly made ones that rip immediately. You need to pay attention, only a few shops sell the much better quality ones that are nearly indestructible. So far I wasn't able to rip one, even after half a year of nearly daily use and cutting them in different lengths and shapes. Pictures attached. I'm not sure if I'm allowed to link some of those shops directly, mods have to give me a green light for that. Until then, compare pictures.
 
 &nbsp;
