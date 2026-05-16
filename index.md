@@ -131,7 +131,7 @@ Prepare a toe shield. I pinch a small hole in the top of the toe shield so it do
 
 **Step 6 - Member preparation (Foreskin and cockrings)**:
 ![ac3031eaf3851b7275ed7eb5ab3f258e.png](attachments/ac3031eaf3851b7275ed7eb5ab3f258e.png)  
-Just for reference, the **red "D"** in the upcoming pictures is the dorsal (upper) side of your member, so you don't lose orientation.
+Just for reference, the **_red "D"_** in the upcoming pictures is the dorsal (upper) side of your member, so you don't lose orientation.
 
 **The yellow tape on this banana is to represent the glans and should NOT be confused with the actual taping process!**
 
