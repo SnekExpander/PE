@@ -2,7 +2,7 @@
 
 ## Table of contents:
   * [Intro](#intro)
-  * [Why this guide? Aren't there already a dozen video tutorials from the OGs? Short answer: Yes and no.](#why-this-guide--aren-t-there-already-a-dozen-video-tutorials-from-the-ogs--short-answer--yes-and-no)
+  * [Why this guide? Aren't there already a dozen video tutorials from the OGs? Short answer: Yes and no.](#why-this-guide-arent-there-already-a-dozen-video-tutorials-from-the-ogs-short-answer-yes-and-no)
   * [Existing tailored vacuum sleeve solutions](#existing-tailored-vacuum-sleeve-solutions)
   * [Blister prevention](#blister-prevention)
   * [Material I use in this guide:](#material-i-use-in-this-guide-)
