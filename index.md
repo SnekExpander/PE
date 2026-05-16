@@ -17,7 +17,7 @@
     + [Step 8 - Toe shield (Optional but highly recommended):](#step-8---toe-shield--optional-but-highly-recommended)
     + [Step 9 - Inner sleeve](#step-9---inner-sleeve)
     + [Step 10 - Outer sleeve and vacuum cup](#step-10---outer-sleeve-and-vacuum-cup)
-    + [Outro:](#outro)
+    + [Outro](#outro)
 
 ## Intro
 
