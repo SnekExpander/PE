@@ -1,5 +1,5 @@
 # How to vacuum extend/hang comfortably without edema and blisters - A special sleeve and alternative quick-taping technique, especially for uncut guys
-## Preface
+## Intro
 
 Nothing in this guide is a novelty and I'm sure some use the same or similar methods. I just wanted to make a guide how I do it "my way" after struggling to find something that works with a sensitive glans and foreskin.
 
@@ -235,7 +235,7 @@ Like stated in the intro of this guide: I'm very prone to blisters and edema. Wi
 
 Placing the first two pieces of tape properly is the hardest part, the third and fourth piece aren't difficult, because you just put them over the existing tape without the need of paying attention to the foreskin and placement that much. I think it definitely outweighs the risk for blisters.
 
-If you have questions or want to give feedback, feel free to comment.
+If you have questions or want to give feedback, feel free to comment via Reddit.
 
 Happy extending/hanging!
 
