@@ -1,4 +1,6 @@
 # How to vacuum extend/hang comfortably without edema and blisters - A special sleeve and alternative quick-taping technique, especially for uncut guys
+https://github.com/SnekExpander/PE/blob/main/index.md#why-this-guide-arent-there-already-a-dozen-video-tutorials-from-the-ogs-short-answer-yes-and-no
+
 ## Intro
 
 Nothing in this guide is a novelty and I'm sure some use the same or similar methods. I just wanted to make a guide how I do it "my way" after struggling to find something that works with a sensitive glans and foreskin.
