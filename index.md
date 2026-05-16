@@ -117,7 +117,7 @@ Sharp scissors are recommended.
 
 **Step 4 - Toe shield preparation (Optional):**  
 ![14.jpg](attachments/14.jpg)  
-Prepare a toe shield. I pinch a small hole in the top of the toe shield so it doesn't shrivel itself off your glans when using vacuum later in the process. You can skip using a toe shield, but I like the compression effect, so I can get in the cup more easily and it also gives you additional protection and a comfort cushion. If your cup is slightly too big, you can also always stack a few to minimize empty space.
+Prepare a toe shield. I pinch a small hole in the top of the toe shield so it doesn't shrivel itself off the glans when using vacuum later in the process. You can skip using a toe shield, but I like the compression effect, so I can get in the cup more easily and it also gives you additional protection and a comfort cushion. If your cup is slightly too big, you can also always stack a few to minimize empty space.
 
 **Step 5 - Tape preparation:**
 ![15.jpg](attachments/15.jpg)  
