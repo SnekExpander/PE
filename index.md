@@ -14,7 +14,7 @@
     + [Step 5 - Tape preparation:](#step-5---tape-preparation-)
     + [Step 6 - Member preparation (Foreskin and cockrings):](#step-6---member-preparation--foreskin-and-cockrings--)
     + [Step 7 - Taping:](#step-7---taping-)
-    + [Step 8 - Toe shield (Optional but highly recommended):![7e9a7b52a70f03d743e07d7ce3dc7e70.png](attachments/7e9a7b52a70f03d743e07d7ce3dc7e70.png)](#step-8---toe-shield--optional-but-highly-recommended----7e9a7b52a70f03d743e07d7ce3dc7e70png--attachments-7e9a7b52a70f03d743e07d7ce3dc7e70png-)
+    + [Step 8 - Toe shield (Optional but highly recommended):](#step-8---toe-shield--optional-but-highly-recommended--)
     + [Step 9 - Inner sleeve](#step-9---inner-sleeve)
     + [Step 10 - Outer sleeve and vacuum cup](#step-10---outer-sleeve-and-vacuum-cup)
     + [Outro:](#outro-)
@@ -39,7 +39,7 @@ I've tried different recommended vacuum cup anti-blister techniques that always 
 - water trick
 - 3M medical pore tape
 - coban wrap
-- toe shields
+- s
 - etc.
 
 I always had my blisters at the same spot around my urethra.
@@ -73,8 +73,8 @@ I just switched back to Mefix tape and it's much more comfortable to handle and 
 ## Material I use in this guide:
 
 - Mefix tape 5 cm x 10 m. Either buy this or the 2.5 cm x 10 m (0.98" \* 32.8 ft) variant if you have a much smaller girth. I bought it from a European medical shop. 3-4€ per 10 m roll.
-- Totalman vacuum cup size 4. Pick the smallest possible for your erect glans. It should be a snug fit, but you should still have some space left for the tape, sleeves and toe shield.
-- Toe shield from Amazon or AliExpress.
+- Totalman vacuum cup size 4. Pick the smallest possible for your erect glans. It should be a snug fit, but you should still have some space left for the tape, sleeves and .
+-  from Amazon or AliExpress.
 - Chinese sleeves from AliExpress. Not the poorly made ones that rip immediately. You need to pay attention, only a few shops sell the much better quality ones that are nearly indestructible. So far I wasn't able to rip one, even after half a year of nearly daily use and cutting them in different lengths and shapes. Pictures attached. I'm not sure if I'm allowed to link some of those shops directly, mods have to give me a green light for that. Until then, compare pictures.
 
 &nbsp;
@@ -135,7 +135,7 @@ In this example I just use a dorsal side cut-out. You could even skip the cut-ou
 ![13.jpg](attachments/13.jpg)  
 Sharp scissors are recommended.
 
-### Step 4 - Toe shield preparation (Optional):  
+### Step 4 -  preparation (Optional):  
 ![14.jpg](attachments/14.jpg)  
 Prepare a toe shield. I pinch a small hole in the top of the toe shield so it doesn't shrivel itself off the glans when using vacuum later in the process. You can skip using a toe shield, but I like the compression effect, so I can get in the cup more easily and it also gives you additional protection and a comfort cushion. If your cup is slightly too big, you can also always stack a few to minimize empty space.
 
@@ -217,7 +217,8 @@ From the side it should now look like this.
 ![1d61428ab588ec70c086b85680b8e94d.png](attachments/1d61428ab588ec70c086b85680b8e94d.png)  
 **_Once more, squish your glans and shaft gently from all sides and top to make sure that the tape has 100% contact with your skin and the other layers of tape._**
 
-### Step 8 - Toe shield (Optional but highly recommended):![7e9a7b52a70f03d743e07d7ce3dc7e70.png](attachments/7e9a7b52a70f03d743e07d7ce3dc7e70.png)  
+### Step 8 - Toe shield (Optional but highly recommended):
+![7e9a7b52a70f03d743e07d7ce3dc7e70.png](attachments/7e9a7b52a70f03d743e07d7ce3dc7e70.png)  
 1. Place the toe shield over your glans.
 
 ![acd01932619458dec89021871a284cdc.png](attachments/acd01932619458dec89021871a284cdc.png)  
