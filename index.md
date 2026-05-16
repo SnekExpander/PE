@@ -136,7 +136,7 @@ Just for reference, the **_red "D"_** in the upcoming pictures is the dorsal (up
 **_The yellow tape on this banana is to represent the glans and should NOT be confused with the actual taping process!_**
 
 ![4ba778c92616d16e8e646304dc215b52.png](attachments/4ba778c92616d16e8e646304dc215b52.png)  
-**It is important that your glans is fully erect and filled with blood when taping. Your foreskin should be pulled down completely and held in place by cockrings (marked blue) at the base of your member.**
+**_It is important that your glans is fully erect and filled with blood when taping. Your foreskin should be pulled down completely and held in place by cockrings (marked blue) at the base of your member._**
 
 Alternative to cockrings: I recommend cutting off two or three 1.5 - 3 cm / 0.6 - 1.2" long sleeves and stacking them at the base of your member for maximum rigidness.
 
