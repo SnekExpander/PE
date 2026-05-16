@@ -133,20 +133,20 @@ Prepare a toe shield. I pinch a small hole in the top of the toe shield so it do
 ![ac3031eaf3851b7275ed7eb5ab3f258e.png](attachments/ac3031eaf3851b7275ed7eb5ab3f258e.png)  
 Just for reference, the **_red "D"_** in the upcoming pictures is the dorsal (upper) side of your member, so you don't lose orientation.
 
-**The yellow tape on this banana is to represent the glans and should NOT be confused with the actual taping process!**
+**_The yellow tape on this banana is to represent the glans and should NOT be confused with the actual taping process!_**
 
 ![4ba778c92616d16e8e646304dc215b52.png](attachments/4ba778c92616d16e8e646304dc215b52.png)  
 **It is important that your glans is fully erect and filled with blood when taping. Your foreskin should be pulled down completely and held in place by cockrings (marked blue) at the base of your member.**
 
 Alternative to cockrings: I recommend cutting off two or three 1.5 - 3 cm / 0.6 - 1.2" long sleeves and stacking them at the base of your member for maximum rigidness.
 
-**I want to emphasize again how important a 100% erect glans is and that your foreskin should be pulled down completely when taping, else you might experience uncomfortable pinching and edema while hanging/extending! Don't rush through this step and learn how to do it properly for your own sake.**
+**_I want to emphasize again how important a 100% erect glans is and that your foreskin should be pulled down completely when taping, else you might experience uncomfortable pinching and edema while hanging/extending! Don't rush through this step and learn how to do it properly for your own sake._**
 
 **Step 7 - Taping:**
 ![b41eefccc0fd4de8ca64a596367f0879.png](attachments/b41eefccc0fd4de8ca64a596367f0879.png)  
-**Hint: Throughout all sub-steps in the "Taping" section, always pull down your foreskin and hold it pulled down when you place your tape on the shaft and coronal ridge on either side. Your cockrings at the base of the shaft will do the most work, but you'll need to assist with one of your hands.**
+**_Hint: Throughout all sub-steps in the "Taping" section, always pull down your foreskin and hold it pulled down when you place your tape on the shaft and coronal ridge on either side. Your cockrings at the base of the shaft will do the most work, but you'll need to assist with one of your hands._**
 
-**Cut members: Depending on how much skin or scar tissue is left over, I would recommend on pulling the skin down anyways, but judge it yourself.**
+**_Cut members: Depending on how much skin or scar tissue is left over, I would recommend on pulling the skin down anyways, but judge it yourself._**
 
 1\. Start to place the first piece of tape on the dorsal side of your shaft. The length of the tape to the coronal ridge (blue) should be approx. 1.5 - 3 cm / 0.6 - 1.2".
 
@@ -169,7 +169,7 @@ From the side it should now look like this.
 6\. Fold the 4 flaps inwards to the sides of the glans.
 
 ![f641aa1022e83becabd5c2be120cfcd5.png](attachments/f641aa1022e83becabd5c2be120cfcd5.png)![b899de8895c39bc8494794d4feb2749b.png](attachments/b899de8895c39bc8494794d4feb2749b.png)  
-**Before continuing with the next step, squish your glans and shaft gently from all sides and top to make sure that the tape has 100% contact with your skin.**
+**_Before continuing with the next step, squish your glans and shaft gently from all sides and top to make sure that the tape has 100% contact with your skin._**
 
 ![970e56216f2ddd25957af16137e276ba.png](attachments/970e56216f2ddd25957af16137e276ba.png)
 7\. Place the next piece of tape onto the tip of your glans. Try to be as much in the center point as possible. That way, we achieve uniform taping length on both sides.
@@ -183,7 +183,7 @@ From the side it should now look like this.
 ![2192a99754bc87ced3e5b903080200f7.png](attachments/2192a99754bc87ced3e5b903080200f7.png)![b2c0a564b25d3d48fcaecfde1a04dd4c.png](attachments/b2c0a564b25d3d48fcaecfde1a04dd4c.png)![79c07c6224380b278552effdd230b2ad.png](attachments/79c07c6224380b278552effdd230b2ad.png)![745665aebbf105d11ed2b594a415398a.png](attachments/745665aebbf105d11ed2b594a415398a.png)  
 10\. Fold the 4 flaps inwards to the dorsal and opposite side.
 
-**Again, before continuing with the next step, squish your glans and shaft gently from all sides and top to make sure that the tape has 100% contact with your skin and the other tape layer.**
+**_Again, before continuing with the next step, squish your glans and shaft gently from all sides and top to make sure that the tape has 100% contact with your skin and the other tape layer._**
 
 ![721ec16924ec2c9043b6345dc6c4c3b2.png](attachments/721ec16924ec2c9043b6345dc6c4c3b2.png)  
 11\. Use the third piece of tape and repeat steps 1 - 6.
@@ -195,7 +195,7 @@ From the side it should now look like this.
 ![4c30cd712aa48cf70d51cbe01cb82934.png](attachments/4c30cd712aa48cf70d51cbe01cb82934.png)![0916b59ba248ff3d121cfb2d6de1790e.png](attachments/0916b59ba248ff3d121cfb2d6de1790e.png)
 
 ![1d61428ab588ec70c086b85680b8e94d.png](attachments/1d61428ab588ec70c086b85680b8e94d.png)  
-**Once more, squish your glans and shaft gently from all sides and top to make sure that the tape has 100% contact with your skin and the other layers of tape.**
+**_Once more, squish your glans and shaft gently from all sides and top to make sure that the tape has 100% contact with your skin and the other layers of tape._**
 
 **Step 8 - Toe shield (Optional but highly recommended):**![7e9a7b52a70f03d743e07d7ce3dc7e70.png](attachments/7e9a7b52a70f03d743e07d7ce3dc7e70.png)  
 1. Place the toe shield over your glans.
