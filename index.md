@@ -8,7 +8,7 @@ Nothing in this guide is a novelty and I'm sure some use the same or similar met
 - **Alternative, quicker and more comfortable taping to the well known 3M medical pore tape**
 - **Comfortable inner/outer sleeve combination to prevent pinching and edema because of misplaced foreskin.**
 
-# Why this guide? Aren't there already a dozen video tutorials from the OGs? Short answer: Yes and no.
+## Why this guide? Aren't there already a dozen video tutorials from the OGs? Short answer: Yes and no.
 
 A few months ago I finally wanted to find a comfortable way to vacuum hang without any blisters which I'm very prone to and I also wanted to prevent any edema and pinching while being uncut.
 
@@ -32,7 +32,7 @@ I also tried different compression devices, but I don't feel the same uniform st
 
 I just want to set and forget, so I can attach my member to my under desk pulley and continue working on my PC. This is the best way for me to keep a regular routine. Not trying to make compression devices look bad, but it's just not for me.
 
-# Existing tailored vacuum sleeve solutions
+## Existing tailored vacuum sleeve solutions
 
 I bought the 43 mm Middle Reliever from [u/6-12_Curveball](https://www.reddit.com/u/6-12_Curveball), but I was struggling to get it over my member. At the time, there wasn't the "Super Soft" but just the "Durable" variant available, which are too hard to just stretch over my member and it was a huge struggle to fit comfortably. Maybe it's only an issue with above than average girth. I only managed to use it once properly.
 
@@ -44,13 +44,13 @@ If you don't want to use Chinese sleeves and cut them to length like in this gui
 
 Anyways I had to come up with something myself. Granted, I got inspired by the Middle Reliever and I wanted something that was customizable and easily reproducible if something breaks. Most importantly, I wanted to be able to put it over my member in layers, without struggling with my girth, misplaced foreskin, using lube, edema and pinching while hanging.
 
-# Blister prevention
+## Blister prevention
 
 I researched and saw a few guys recommending different tapes, such as Mefix (medical fleece) or tattoo tape. I can only vouch for Mefix tape, but there should be similar tapes available. I've tried a different brand that looks the same, but unfortunately, the glue wasn't water dissolvable, so I had to use oils and soap to remove the tape when I was done with my routine. So keep that in mind when trying to shop for alternatives.
 
 I just switched back to Mefix tape and it's much more comfortable to handle and remove afterwards. I recommend buying multiple rolls so you don't run out of it unexpectedly.
 
-# Material I use in this guide:
+## Material I use in this guide:
 
 - Mefix tape 5 cm x 10 m. Either buy this or the 2.5 cm x 10 m (0.98" \* 32.8 ft) variant if you have a much smaller girth. I bought it from a European medical shop. 3-4€ per 10 m roll.
 - Totalman vacuum cup size 4. Pick the smallest possible for your erect glans. It should be a snug fit, but you should still have some space left for the tape, sleeves and toe shield.
@@ -77,7 +77,7 @@ You can also identify the good sleeves by the packaging. They come with a foam p
 ![S5.jpg](attachments/S5.jpg)  
 Important: The sleeve should have some good amount of thickness to it, that's why I'm preferring these. They are also super soft and extremely stretchy.
 
-# Guide starts here
+## Guide starts here
 
 **Step 1 - Outer sleeve preparation:**  
 ![4faaa2544c71e82a450078a8ae784005.png](attachments/4faaa2544c71e82a450078a8ae784005.png)  
