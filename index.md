@@ -1,5 +1,5 @@
 # How to vacuum extend/hang comfortably without edema and blisters - A special sleeve and alternative quick-taping technique, especially for uncut guys
-https://github.com/SnekExpander/PE/blob/main/index.md#why-this-guide-arent-there-already-a-dozen-video-tutorials-from-the-ogs-short-answer-yes-and-no
+
 
 ## Intro
 
