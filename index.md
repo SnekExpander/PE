@@ -39,7 +39,7 @@ I've tried different recommended vacuum cup anti-blister techniques that always 
 - water trick
 - 3M medical pore tape
 - coban wrap
-- s
+- toe shields
 - etc.
 
 I always had my blisters at the same spot around my urethra.
