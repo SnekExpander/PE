@@ -68,7 +68,8 @@ In this guide I use the 228 x 26 mm "XXL" or "2XL" sleeve, depending which selle
 ![S3.jpg](attachments/S3.jpg)  
 You want something like this! They have a completely cylindrical shape and are semi-transparent.
 
-![05dc79973f97c5dd2996b9845a1e64cb.png](attachments/05dc79973f97c5dd2996b9845a1e64cb.png) 
+![05dc79973f97c5dd2996b9845a1e64cb.png](attachments/05dc79973f97c5dd2996b9845a1e64cb.png)
+
 Don't buy these! Those are the crappy ones. You can identify them because of the wider pre-molded vacuum cup shape at the top. Colors are usually white and blue. They usually come in sizes "S", "M", and "L".
 
 ![S4.jpg](attachments/S4.jpg)  
