@@ -135,7 +135,7 @@ In this example I just use a dorsal side cut-out. You could even skip the cut-ou
 ![13.jpg](attachments/13.jpg)  
 Sharp scissors are recommended.
 
-### Step 4 -  preparation (Optional):  
+### Step 4 - Toe shield preparation (Optional):  
 ![14.jpg](attachments/14.jpg)  
 Prepare a toe shield. I pinch a small hole in the top of the toe shield so it doesn't shrivel itself off the glans when using vacuum later in the process. You can skip using a toe shield, but I like the compression effect, so I can get in the cup more easily and it also gives you additional protection and a comfort cushion. If your cup is slightly too big, you can also always stack a few to minimize empty space.
 
