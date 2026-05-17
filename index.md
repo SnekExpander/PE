@@ -73,10 +73,20 @@ I just switched back to Mefix tape and it's much more comfortable to handle and 
 ## Material I use in this guide:
 
 - [Mefix tape 5 cm x 10 m / 2" x 11 yds](https://www.molnlycke.com/en-us/products/wound-care/fixation-compression-therapy/mefix?variantId=310500). Either buy this or the 2.5 cm x 10 m (1" x 11 yds) variant if you have a much smaller girth. I bought it from a European medical shop. 3-4€ per 10 m roll. Possibly more expensive in the US or other regions.
-Sources: [Amazon.com](https://www.amazon.com/Mefix-Dressing-Retention-Molnlycke-Healthcare/dp/B018OS1RQK); [ebay.com #1](https://www.ebay.com/sch/i.html?_nkw=Mefix+5cm+x+10m&_sacat=0&_from=R40&_trksid=m570.l1313); [ebay.com #2](https://www.ebay.com/sch/i.html?_nkw=Mefix+310500&_sacat=0&_from=R40&_trksid=p2334524.m570.l1313&_odkw=310500&_osacat=0); [ebay.com #3](https://www.ebay.com/sch/i.html?_nkw=Mefix+310599&_sacat=0&_from=R40&_trksid=m570.l1313&_odkw=Mefix+310599&_osacat=0); [newpharma.de](https://www.newpharma.de/molnlycke/18761/mepilex-mefix-fixierpflaster-10m-x-5cm-stuck-1-310500.html)
-- Totalman vacuum cup size 4. Pick the smallest possible for your erect glans. It should be a snug fit, but you should still have some space left for the tape, sleeves and toe shield. Sources: [totalmanshop.com](https://totalmanshop.com/collections/accessories/products/vacuum-chambers); [FknMint on etsy](https://www.etsy.com/shop/FknMint)
-- Silicone toe shields. Sources: [ebay.com](https://www.ebay.com/itm/358038248252); [Amazon.com](https://www.amazon.com/Hoogoo-Protectors-Toenails-Blisters-Problems/dp/B084TTFBP6); [Amazon.de](https://www.amazon.de/Welnove-Gel-Zehenkappe-Zehenschutz-Zehenabdeckungen-Schmerzlinderung/dp/B0CRHB5PCV)
-- Chinese sleeves from AliExpress. Not the poorly made ones that rip immediately. You need to pay attention, only a few shops sell the much better quality ones that are nearly indestructible. So far I wasn't able to rip one, even after half a year of nearly daily use and cutting them in different lengths and shapes. Pictures attached. Sources: [AliExpress.us #1](https://www.aliexpress.us/item/3256808318514919.html); [AliExpress.us #2](https://www.aliexpress.us/item/3256806319152367.html); [AliExpress.us #3](https://www.aliexpress.us/item/3256809324276601.html); [AliExpress.us #4](https://www.aliexpress.us/item/3256803596923976.html)
+
+    Sources: [Amazon.com](https://www.amazon.com/Mefix-Dressing-Retention-Molnlycke-Healthcare/dp/B018OS1RQK); [ebay.com #1](https://www.ebay.com/sch/i.html?_nkw=Mefix+5cm+x+10m&_sacat=0&_from=R40&_trksid=m570.l1313); [ebay.com #2](https://www.ebay.com/sch/i.html?_nkw=Mefix+310500&_sacat=0&_from=R40&_trksid=p2334524.m570.l1313&_odkw=310500&_osacat=0); [ebay.com #3](https://www.ebay.com/sch/i.html?_nkw=Mefix+310599&_sacat=0&_from=R40&_trksid=m570.l1313&_odkw=Mefix+310599&_osacat=0); [newpharma.de](https://www.newpharma.de/molnlycke/18761/mepilex-mefix-fixierpflaster-10m-x-5cm-stuck-1-310500.html)
+
+- Totalman vacuum cup size 4. Pick the smallest possible for your erect glans. It should be a snug fit, but you should still have some space left for the tape, sleeves and toe shield.
+
+    Sources: [totalmanshop.com](https://totalmanshop.com/collections/accessories/products/vacuum-chambers); [FknMint on etsy](https://www.etsy.com/shop/FknMint)
+
+- Silicone toe shields.
+
+    Sources: [ebay.com](https://www.ebay.com/itm/358038248252); [Amazon.com](https://www.amazon.com/Hoogoo-Protectors-Toenails-Blisters-Problems/dp/B084TTFBP6); [Amazon.de](https://www.amazon.de/Welnove-Gel-Zehenkappe-Zehenschutz-Zehenabdeckungen-Schmerzlinderung/dp/B0CRHB5PCV)
+
+- Chinese sleeves from AliExpress. Not the poorly made ones that rip immediately. You need to pay attention, only a few shops sell the much better quality ones that are nearly indestructible. So far I wasn't able to rip one, even after half a year of nearly daily use and cutting them in different lengths and shapes. Pictures attached.
+
+    Sources: [AliExpress.us #1](https://www.aliexpress.us/item/3256808318514919.html); [AliExpress.us #2](https://www.aliexpress.us/item/3256806319152367.html); [AliExpress.us #3](https://www.aliexpress.us/item/3256809324276601.html); [AliExpress.us #4](https://www.aliexpress.us/item/3256803596923976.html)
 
 &nbsp;
 
