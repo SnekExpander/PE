@@ -72,13 +72,13 @@ I just switched back to Mefix tape and it's much more comfortable to handle and 
 
 ## Material I use in this guide:
 
-- [Mefix tape 5 cm x 10 m / 2" x 11 yds](https://www.molnlycke.com/en-us/products/wound-care/fixation-compression-therapy/mefix?variantId=310500). Either buy this or the 2.5 cm x 10 m (1" x 11 yds) variant if you have a much smaller girth. I bought it from a European medical shop. 3-4€ per 10 m roll. Possibly more expensive in the US or other regions. Please contact me and let me know if you find viable alternatives in your region, so I can add it to this guide.
+- [Mefix tape 5 cm x 10 m / 2" x 11 yds](https://www.molnlycke.com/en-us/products/wound-care/fixation-compression-therapy/mefix?variantId=310500). Either buy this or the 2.5 cm x 10 m (1" x 11 yds) variant if you have a much smaller girth. I bought it from a European medical shop. 3-4€ per 10 m roll. Possibly more expensive in the US or other regions. Please contact me and let me know if you find viable alternatives in your region, so I can add it to this guide. You can search the product with 4 different terms. "Mefix 5 cm x 10 m"; "Mefix 2" x 11 yds"; "Mefix 310500" in the US and EU and "Mefix 310599" in the US.
 
     Sources: [Amazon.com](https://www.amazon.com/Mefix-Dressing-Retention-Molnlycke-Healthcare/dp/B018OS1RQK); [ebay.com #1](https://www.ebay.com/sch/i.html?_nkw=Mefix+5cm+x+10m&_sacat=0&_from=R40&_trksid=m570.l1313); [ebay.com #2](https://www.ebay.com/sch/i.html?_nkw=Mefix+310500&_sacat=0&_from=R40&_trksid=p2334524.m570.l1313&_odkw=310500&_osacat=0); [ebay.com #3](https://www.ebay.com/sch/i.html?_nkw=Mefix+310599&_sacat=0&_from=R40&_trksid=m570.l1313&_odkw=Mefix+310599&_osacat=0); [newpharma.de](https://www.newpharma.de/molnlycke/18761/mepilex-mefix-fixierpflaster-10m-x-5cm-stuck-1-310500.html)
 
 - Totalman vacuum cup size 4. Pick the smallest possible for your erect glans. It should be a snug fit, but you should still have some space left for the tape, sleeves and toe shield.
 
-    Sources: [totalmanshop.com](https://totalmanshop.com/collections/accessories/products/vacuum-chambers); [FknMint on etsy](https://www.etsy.com/shop/FknMint)
+    Sources: [Totalmanshop.com](https://totalmanshop.com/collections/accessories/products/vacuum-chambers); [FknMint on etsy.com](https://www.etsy.com/shop/FknMint)
 
 - Silicone toe shields.
 
