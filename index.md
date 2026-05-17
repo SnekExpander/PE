@@ -54,7 +54,7 @@ I just want to set and forget, so I can attach my member to my under desk pulley
 
 ## Existing tailored vacuum sleeve solutions
 
-I bought the 43 mm Middle Reliever from [u/6-12_Curveball](https://www.reddit.com/u/6-12_Curveball), but I was struggling to get it over my member. At the time, there wasn't the "Super Soft" but just the "Durable" variant available, which are too hard to just stretch over my member and it was a huge struggle to fit comfortably. Maybe it's only an issue with above than average girth. I only managed to use it once properly.
+I bought the [43 mm Middle Reliever](https://www.612printedpolymers.com/product-page/middle-reliever-33mm-cup-short-sleeve) from [u/6-12_Curveball](https://www.reddit.com/u/6-12_Curveball), but I was struggling to get it over my member. At the time, there wasn't the "Super Soft" but just the "Durable" variant available, which are too hard to just stretch over my member and it was a huge struggle to fit comfortably. Maybe it's only an issue with above than average girth. I only managed to use it once properly.
 
 Alternatively, I hated that I'd needed to lube up, get in and clean the lube up while inside the sleeve. It's even more bothersome when taped up, because it might get your tape wet and it starts dissolving the glue.
 
@@ -86,7 +86,7 @@ I just switched back to Mefix tape and it's much more comfortable to handle and 
 
 - Chinese sleeves from AliExpress. Not the poorly made ones that rip immediately. You need to pay attention, only a few shops sell the much better quality ones that are nearly indestructible. So far I wasn't able to rip one, even after half a year of nearly daily use and cutting them in different lengths and shapes. Pictures attached.
 
-    Sources: [AliExpress.us #1](https://www.aliexpress.us/item/3256808318514919.html); [AliExpress.us #2](https://www.aliexpress.us/item/3256806319152367.html); [AliExpress.us #3](https://www.aliexpress.us/item/3256809324276601.html); [AliExpress.us #4](https://www.aliexpress.us/item/3256803596923976.html)
+    Sources: [AliExpress.us #1](https://www.aliexpress.us/item/3256808318514919.html); [AliExpress.us #2](https://www.aliexpress.us/item/3256806319152367.html); [AliExpress.us #3](https://www.aliexpress.us/item/3256809324276601.html); [AliExpress.us #4](https://www.aliexpress.us/item/3256803596923976.html); [AliExpress.com EU #1](https://de.aliexpress.com/item/1005008504829671.html); [AliExpress.com EU #2](https://de.aliexpress.com/item/1005006505467119.html); [AliExpress.com EU #3](https://de.aliexpress.com/item/1005009510591353.html); [AliExpress.com EU #4](https://de.aliexpress.com/item/1005003783238728.html)
 
 &nbsp;
 
