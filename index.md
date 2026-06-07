@@ -136,7 +136,7 @@ A new one should look like this:
 ### Step 3 - Inner sleeve preparation:  
 <img width="1134" height="2016" alt="image" src="https://github.com/user-attachments/assets/d7a05cd2-2ae6-456c-b6b9-f4f57af6f9d2" />
 
-Cut a new piece off your sleeve. Here I'm using around 80 mm / 3.15".
+Cut a new piece off your sleeve. Here I'm using around 80 mm / 3.15" in length.
 
 <img width="1134" height="2016" alt="PXL_20260607_071935307 MP" src="https://github.com/user-attachments/assets/212edacc-6634-4836-a3ef-c8c400d41933" />
 <img width="1134" height="2016" alt="PXL_20260607_071955261" src="https://github.com/user-attachments/assets/9e6047db-5333-4375-a496-2e0180e46f86" />
