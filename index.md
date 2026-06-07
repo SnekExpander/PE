@@ -134,17 +134,19 @@ A new one should look like this:
 ![7.jpg](attachments/7.jpg)
 
 ### Step 3 - Inner sleeve preparation:  
-<img width="2268" height="4032" alt="PXL_20260607_071832372 MP" src="https://github.com/user-attachments/assets/751024bd-1550-4de3-80ea-f8d2f699e3a9" />
+<img width="1134" height="2016" alt="image" src="https://github.com/user-attachments/assets/d7a05cd2-2ae6-456c-b6b9-f4f57af6f9d2" />
 Cut a new piece off your sleeve. Here I'm using around 80 mm / 3.15".
 
 <img width="430" height="493" alt="image" src="https://github.com/user-attachments/assets/38562596-3278-43d0-aa7e-65eace439825" />
-<img width="2268" height="4032" alt="PXL_20260607_071935307 MP" src="https://github.com/user-attachments/assets/212edacc-6634-4836-a3ef-c8c400d41933" />
-<img width="2268" height="4032" alt="PXL_20260607_071955261" src="https://github.com/user-attachments/assets/9e6047db-5333-4375-a496-2e0180e46f86" />
-Make an angled cut like this (side profile).
+<img width="1134" height="2016" alt="PXL_20260607_071935307 MP" src="https://github.com/user-attachments/assets/212edacc-6634-4836-a3ef-c8c400d41933" />
+<img width="1134" height="2016" alt="PXL_20260607_071955261" src="https://github.com/user-attachments/assets/9e6047db-5333-4375-a496-2e0180e46f86" />
 
+Make an angled cut like this (side profile).
 This will allow to fit the sleeve all around the coronal ridge of your glans naturally and cover your frenulum/foreskin to prevent donut edema and pinching.
 
-I recommend you cut 
+<img width="430" height="493" alt="image" src="https://github.com/user-attachments/assets/b2c56aa6-0d20-408f-8c07-079d67632aad" />
+I recommend you fold the sleeve flat when cutting. Also make sure to have the sleeve's mold lines where your cut starts and where it ends. This will help you to use the mold line to position the sleeve perfectly onto your member later on.
+
 
 
 
