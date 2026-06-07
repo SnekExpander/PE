@@ -68,7 +68,7 @@ Anyways I had to come up with something myself. Granted, I got inspired by the M
 
 I researched and saw a few guys recommending different tapes, such as Mefix (medical fleece) or tattoo tape. I can only vouch for Mefix tape, but there should be similar tapes available. I've tried a different brand that looks the same, but unfortunately, the glue wasn't water dissolvable, so I had to use oils and soap to remove the tape when I was done with my routine. So keep that in mind when trying to shop for alternatives.
 
-I just switched back to Mefix tape and it's much more comfortable to handle and remove afterwards. I recommend buying multiple rolls so you don't run out of it unexpectedly.
+I just switched back to Mefix tape and it's much more comfortable to handle and remove afterwards.  buying multiple rolls so you don't run out of it unexpectedly.
 
 ## Material I use in this guide:
 
@@ -149,7 +149,7 @@ This will allow to fit the sleeve all around the coronal ridge of your glans nat
 
 <img width="1134" height="2016" alt="PXL_20260607_071955261" src="https://github.com/user-attachments/assets/9e6047db-5333-4375-a496-2e0180e46f86" />
 
-I recommend you fold the sleeve flat when cutting. Also make sure to have the sleeve's mold lines where your cut starts and where it ends. This will help you to use the factory mold lines to position/align the sleeve perfectly onto your member later on.
+I recommend to fold the sleeve flat when cutting. Also make sure to have the sleeve's mold lines where your cut starts and where it ends. This will help you to use the factory mold lines to position/align the sleeve perfectly onto your member later on. For example: I use the line at the pointy side of the sleeve to align it with the frenulum.
 
 Sharp scissors are recommended.
 
