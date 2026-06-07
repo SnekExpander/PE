@@ -144,8 +144,6 @@ Cut a new piece off your sleeve. Here I'm using around 80 mm / 3.15" in length.
 Make an angled cut like this (side profile).
 This will allow to fit the sleeve all around the coronal ridge of your glans naturally and cover your frenulum/foreskin to prevent donut edema and pinching.
 
-<img width="430" height="493" alt="image" src="https://github.com/user-attachments/assets/38562596-3278-43d0-aa7e-65eace439825" />
-
 <img width="430" height="493" alt="image" src="https://github.com/user-attachments/assets/b2c56aa6-0d20-408f-8c07-079d67632aad" />
 
 <img width="1003" height="1258" alt="image" src="https://github.com/user-attachments/assets/363b8d44-bb21-4f47-a9c4-66ddf4095758" />
