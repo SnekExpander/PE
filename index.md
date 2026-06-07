@@ -138,15 +138,16 @@ A new one should look like this:
 
 Cut a new piece off your sleeve. Here I'm using around 80 mm / 3.15" in length.
 
-<img width="1134" height="2016" alt="PXL_20260607_071935307 MP" src="https://github.com/user-attachments/assets/212edacc-6634-4836-a3ef-c8c400d41933" />
-<img width="1134" height="2016" alt="PXL_20260607_071955261" src="https://github.com/user-attachments/assets/9e6047db-5333-4375-a496-2e0180e46f86" />
-
 Make an angled cut like this (side profile).
 This will allow to fit the sleeve all around the coronal ridge of your glans naturally and cover your frenulum/foreskin to prevent donut edema and pinching.
 
 <img width="430" height="493" alt="image" src="https://github.com/user-attachments/assets/b2c56aa6-0d20-408f-8c07-079d67632aad" />
 
 <img width="1003" height="1258" alt="image" src="https://github.com/user-attachments/assets/363b8d44-bb21-4f47-a9c4-66ddf4095758" />
+
+<img width="1134" height="2016" alt="PXL_20260607_071935307 MP" src="https://github.com/user-attachments/assets/212edacc-6634-4836-a3ef-c8c400d41933" />
+
+<img width="1134" height="2016" alt="PXL_20260607_071955261" src="https://github.com/user-attachments/assets/9e6047db-5333-4375-a496-2e0180e46f86" />
 
 I recommend you fold the sleeve flat when cutting. Also make sure to have the sleeve's mold lines where your cut starts and where it ends. This will help you to use the factory mold lines to position/align the sleeve perfectly onto your member later on.
 
