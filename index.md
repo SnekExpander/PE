@@ -138,6 +138,7 @@ A new one should look like this:
 Cut a new piece off your sleeve. Here I'm using around 80 mm / 3.15".
 
 <img width="430" height="493" alt="image" src="https://github.com/user-attachments/assets/38562596-3278-43d0-aa7e-65eace439825" />
+
 <img width="1134" height="2016" alt="PXL_20260607_071935307 MP" src="https://github.com/user-attachments/assets/212edacc-6634-4836-a3ef-c8c400d41933" />
 <img width="1134" height="2016" alt="PXL_20260607_071955261" src="https://github.com/user-attachments/assets/9e6047db-5333-4375-a496-2e0180e46f86" />
 
