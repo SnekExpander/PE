@@ -134,16 +134,21 @@ A new one should look like this:
 ![7.jpg](attachments/7.jpg)
 
 ### Step 3 - Inner sleeve preparation:  
-![8.jpg](attachments/8.jpg)  
-Cut a new piece off your sleeve. Here I'm using around 60 mm / 2.36". You can experiment by cutting a groove to have a better fit for the dorsal side of your glans. You could also cut the the opposite side pointy shaped, so it fits over your frenulum. If you do that, start with the frenulum side and cut the dorsal side last. This is a lot of trial and error to achieve your perfect fit, but the sleeve is very stretchy and forgiving when you're wearing it.
+<img width="2268" height="4032" alt="PXL_20260607_071832372 MP" src="https://github.com/user-attachments/assets/751024bd-1550-4de3-80ea-f8d2f699e3a9" />
+Cut a new piece off your sleeve. Here I'm using around 80 mm / 3.15".
 
-![9.jpg](attachments/9.jpg)  
-In this example I just use a dorsal side cut-out. You could even skip the cut-outs, but you might suffer some comfort and squeezed glans ridges that turn blue after a while when hanging/extending, because the sleeve might squish your glans slightly.
+<img width="430" height="493" alt="image" src="https://github.com/user-attachments/assets/38562596-3278-43d0-aa7e-65eace439825" />
+<img width="2268" height="4032" alt="PXL_20260607_071935307 MP" src="https://github.com/user-attachments/assets/212edacc-6634-4836-a3ef-c8c400d41933" />
+<img width="2268" height="4032" alt="PXL_20260607_071955261" src="https://github.com/user-attachments/assets/9e6047db-5333-4375-a496-2e0180e46f86" />
+Make an angled cut like this (side profile).
 
-![10.jpg](attachments/10.jpg)  
-![11.jpg](attachments/11.jpg)  
-![12.jpg](attachments/12.jpg)  
-![13.jpg](attachments/13.jpg)  
+This will allow to fit the sleeve all around the coronal ridge of your glans naturally and cover your frenulum/foreskin to prevent donut edema and pinching.
+
+I recommend you cut 
+
+
+
+
 Sharp scissors are recommended.
 
 ### Step 4 - Toe shield preparation (Optional):  
