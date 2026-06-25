@@ -68,7 +68,7 @@ Anyways I had to come up with something myself. Granted, I got inspired by the M
 
 I researched and saw a few guys recommending different tapes, such as Mefix (medical fleece) or tattoo tape. I can only vouch for Mefix tape, but there should be similar tapes available. I've tried a different brand that looks the same, but unfortunately, the glue wasn't water dissolvable, so I had to use oils and soap to remove the tape when I was done with my routine. So keep that in mind when trying to shop for alternatives.
 
-I just switched back to Mefix tape and it's much more comfortable to handle and remove afterwards.  buying multiple rolls so you don't run out of it unexpectedly.
+I just switched back to Mefix tape and it's much more comfortable to handle and remove afterwards. I recommend buying multiple rolls so you don't run out of it unexpectedly.
 
 ## Material I use in this guide:
 
